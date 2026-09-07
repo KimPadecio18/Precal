@@ -1,1 +1,1 @@
-# Precal Notes
+# Precal
